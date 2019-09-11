@@ -1,2 +1,0 @@
-# sinsobaki
-son of dog
